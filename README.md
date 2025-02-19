@@ -1,1 +1,2 @@
 # La-revoluci-n-financiera-de-la-generaci-n-Z
+Código abierto, descentralización y accesibilidad son claves en las inversiones de la generación Z. Prefieren criptomonedas y plataformas digitales por su facilidad de uso y transparencia. Buscan sostenibilidad y evitan sectores contaminantes. La educación autodidacta los convierte en inversores informados, pero también puede exponerlos a riesgos. Su impacto en los mercados ya es una realidad.
